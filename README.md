@@ -46,3 +46,18 @@ Latest Songs By Singer
 - <a href="https://sabtunes.com/sl7/kumar-sanu-songs-download.html">Kumar Sanu Songs Download</a>
 - <a href="https://sabtunes.com/sl13/shaan-songs-download.html">Shaan Songs Download</a>
 - <a href="https://sabtunes.com/sl61/michael-jackson-songs-download.html">Michael Jackson Songs Download</a>
+- <a href="https://sabtunes.com/sl63/50-cent-songs-download.html">50 Cent Songs Download</a>
+- <a href="https://sabtunes.com/sl108/a-r-rahman-songs-download.html">A R Rahman Songs Download</a>
+- <a href="https://sabtunes.com/sl771/aaliyah-songs-download.html">Aaliyah Songs Download</a>
+- <a href="https://sabtunes.com/sl240/adele-songs-download.html">Adele Songs Download</a>
+- <a href="https://sabtunes.com/sl50/adnan-sami-songs-download.html">Adnan Sami Songs Download</a>
+- <a href="https://sabtunes.com/sl69/akon-songs-download.html">Akon Songs Download</a>
+- <a href="https://sabtunes.com/sl34/alisha-chinoy-songs-download.html">Alisha Chinoy Songs Download</a>
+- <a href="https://sabtunes.com/sl17/amit-kumar-songs-download.html">Amit Kumar Songs Download</a>
+- <a href="https://sabtunes.com/sl297/andrea-bocelli-songs-download.html">Andrea Bocelli Songs Download</a>
+- <a href="https://sabtunes.com/sl78/anup-jalota-songs-download.html">Anup Jalota Songs Download</a>
+- <a href="https://sabtunes.com/sl111/aqua-songs-download.html">Aqua Songs Download</a>
+- <a href="https://sabtunes.com/sl74/aretha-franklin-songs-download.html">Aretha Franklin Songs Download</a>
+- <a href="https://sabtunes.com/sl407/beyonce-songs-download.html">Beyonce Songs Download</a>
+
+<a href="https://sabtunes.com/download-songs-by-singer-list.html">More Singer songs List</a>
